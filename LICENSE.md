@@ -1,4 +1,4 @@
-#  
+#  forsaken advanced Script is the best forsaken Script, featuring unlimited stamina and auto-upgrade. Safe and powerful for all your needs.
 
 
 
